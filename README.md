@@ -1,0 +1,1 @@
+# ishizoekogusa.github.io
